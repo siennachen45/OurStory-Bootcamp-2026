@@ -33,6 +33,8 @@ John Lowengrub bellowed, and the other Cyclopes came running to the cave.
 "Then it is the gods," they said, and they went away again.
 At dawn he rolled the stone aside and felt along the backs of his sheep,
 and we went out beneath them, each man clinging to the wool,
-and we came to the ship, and we ran for the open sea.
+and we came to the ship, and we ran for the mountain.
+
+
 
 <!-- verse -->
