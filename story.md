@@ -1,4 +1,4 @@
-# The Cyclops
+# The Cyclops (ʘ)
 
 _adapted from Homer's Odyssey, Book SomebodyX, edited by MCSB 2026_
 
